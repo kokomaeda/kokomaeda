@@ -1,5 +1,1 @@
-- // ABOUT ME:
-- // I AM AN ASPIRING GAME DEVELOPER!
-- // I USE HE/IT PRNOUNS
-- // I AM KOMAEDA
-- // IM TRANS ND GAY!
+there will be actual stuff here. one day.
